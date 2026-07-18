@@ -1,1 +1,1 @@
-print("ot  ishlayapti")
+8753208681:AAGxkCuTHvPKkzxtbNULQxp2zbQ0tWvUFC0
